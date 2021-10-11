@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sasitomp
 - 👀 I’m interested in AI Technology
 - 🌱 I’m currently learning Electrical Engineering
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Chapterjune
 - 📫 How to reach me @Mail:Sasitorn.22643@gmail.com
 
 <!---
